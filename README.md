@@ -1,0 +1,1 @@
+Complimentary mockup for Restaurant Aicha, Coyah, Guinea. Review only. Images are placeholders.
